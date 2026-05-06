@@ -1,5 +1,5 @@
 Vialed Privacy Policy
-Effective date: [REPLACE WITH DATE YOU SUBMIT TO APPLE, e.g. June 1, 2026]
+Effective date: May 5, 2026
 
 Contact: vialpeptidetracker@gmail.com
 
