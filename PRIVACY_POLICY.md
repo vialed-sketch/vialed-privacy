@@ -1,8 +1,10 @@
 # Vialed Privacy Policy
 
-**Effective date:** May 5, 2026
+**Effective date:** May 13, 2026
 
 **Contact:** vialedpeptidetracker@gmail.com
+
+**Download Vialed on the App Store:** https://apps.apple.com/app/id6766401025
 
 ---
 
